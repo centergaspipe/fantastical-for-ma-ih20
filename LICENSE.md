@@ -1,4 +1,4 @@
-
+Fantastical for macOS custom Script - auto-sync and offline access offers the most advanced Fantastical for macOS script, with auto-sync and offline access. Ideal for
 
 
 
